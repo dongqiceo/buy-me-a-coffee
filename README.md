@@ -1,6 +1,6 @@
 # Buy me a coffee
 
-## [PayPal](https://www.paypal.me/xcatliu/)
+## [PayPal](https://www.paypal.me/liaojiaqi/)
 
 ## 微信
 
